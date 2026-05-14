@@ -1,4 +1,4 @@
-#  
+#  Enhance Things 3 for macOS with rare Things 3 for macOS Addon | custom shortcuts + collaboration, the #1 addon. Includes custom shortcuts and collaboration for a smoother
 
 
 
